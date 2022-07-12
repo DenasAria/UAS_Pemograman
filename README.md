@@ -15,4 +15,4 @@
 
 ## Berikut Link Dari Youtube : 
 
-# TERIMAKASIH
+# TERIMA KASIH BANYAK
